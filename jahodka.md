@@ -1,5 +1,5 @@
 #Super jahodka ano
 
-* Jahodka je dobre ovocie
+* Jahodka je dobra zelenina
 * Ok
 * Ok cau
